@@ -12,8 +12,7 @@
 
 - 📫 How to reach me **pankajkumarsah044@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZMn2dSY6tY1eGPjtq5BSAvaMj8ZePEVb/view](https://drive.google.com/file/d/1ZMn2dSY6tY1eGPjtq5BSAvaMj8ZePEVb/view)
-
+- 📄 Know about my experiences : https://drive.google.com/file/d/1227Il-SjjJYuwVY6ZRpXzo18kxGPWj9u/view?usp=sharing
 - ⚡ Fun fact **Absolutely! 😃 Enjoying life brings positivity, motivation, and a fresh perspective. When you're happy and fulfilled, you naturally perform better in all aspects—work, relationships, and personal growth.**
 
 <h3 align="left">Connect with me:</h3>
